@@ -1,1 +1,1 @@
-![1252847-1587918702](https://github.com/user-attachments/assets/d4b9c122-5761-4bd0-b4bd-ac404ae4b7a5)
+<img width="1834" height="938" alt="Make your README" src="https://github.com/user-attachments/assets/6257aa99-2001-47dc-b603-9188e12a0b30" />
